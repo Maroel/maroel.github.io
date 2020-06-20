@@ -13,7 +13,11 @@ Can you tell me what the hell that should be? A M-a-r-ssss-u-peee-laaaa-me? A cu
 
 As it always says:
 
-> some other silence
+> maybe...
 
 and...
 > why not
+
+
+
+<img src="https://www.infotechnica.de/wp-content/uploads/2020/03/Sockenball.jpg"/>
